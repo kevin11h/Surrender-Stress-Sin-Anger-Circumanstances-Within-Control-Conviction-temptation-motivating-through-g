@@ -3,4 +3,12 @@ Francis Chan "God will never allow us be tempted beyond what we can handle" It's
 
 https://www.youtube.com/watch?v=qJHXTG_zRPg
 
-You can will overcome with God's grace
+# You can will overcome with God's grace!
+
+
+![](https://i1.wp.com/image.slidesharecdn.com/redeemyourpast-091005192307-phpapp02/95/redeem-your-past-3-728.jpg?resize=584%2C438)
+
+![](
+
+
+
